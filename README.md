@@ -1,1 +1,0 @@
-# -michaeldavis246611119-skills-getting-started-with-github-copilot
